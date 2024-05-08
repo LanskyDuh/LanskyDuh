@@ -1,16 +1,16 @@
-### Hi there 👋
+### EAE MEUS LOVERS 🩷
 
-<!--
-**LanskyDuh/LanskyDuh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Podem me chamar de *Lansky* 
 
-Here are some ideas to get you started:
+-Gosto da Taytay Swift
+-sou estudante da alura contra minha vontade
+-sou estudante do novo ensino medio, não estou no meu perfeito juízo
+- hello word
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Não entrem em contato comigo haha (sério) 😄
+não vou colocar meu e-mail
+
+_bjjjjjjjjjjjjssss_ 🩷
+
+
+![](https://media1.tenor.com/m/FF8IEyeNGDsAAAAC/taylor-swift-taylorswift.gif)
